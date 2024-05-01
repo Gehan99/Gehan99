@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **JAVA**
 
-- 📫 How to reach me **gehan.chatushka@gmail.com**
+- 📫 How to reach me **gehan.chathushka@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
